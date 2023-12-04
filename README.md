@@ -1,3 +1,10 @@
+
+![image](https://github.com/pasupuln22/match_travellers/assets/114144181/b077e3cb-0107-4047-be66-3ce400dff239)
+
+![image](https://github.com/pasupuln22/match_travellers/assets/114144181/3af3fe9b-7130-40f8-9a53-410d78ac15d2)
+
+
+
 ![image](https://github.com/pasupuln22/match_travellers/assets/114144181/13398120-ba8a-4401-a589-9181806f0ed7)
 
 
